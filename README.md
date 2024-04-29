@@ -8,3 +8,5 @@
 
 
 Trending Bot for Dex Sites DexView DexScreener DexTools CoinmarketCap Avedex and Pinksale
+
+Get yours now > www.t.me/ultimate_pinksale
